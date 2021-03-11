@@ -1,0 +1,3 @@
+GET A MAGGI FROM YOUR LOCAL SHOP IF YOU HAVE ONE ~~LOL~~
+
+- Just get a maggi 
